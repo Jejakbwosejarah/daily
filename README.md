@@ -1,1 +1,2 @@
 # daily
+# jejak bwo sejarah
